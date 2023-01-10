@@ -1,2 +1,2 @@
-https://lebarisunday.github.io/smokestopmk/
+https://smokestopmk.com
 # smokestopmk
